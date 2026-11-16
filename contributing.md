@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/xray-vless-reality-obhod)
+[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/ixf17SMJwki0ZkUK1)
 
 </div>
 
@@ -104,7 +104,7 @@
 2. **📦 Распакуйте** архив — пароль: `2026`
 3. **🖱️ Запустите** от имени администратора → Нажмите «Активировать» → Запустите XRay
 
-[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/xray-vless-reality-obhod)
+[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/ixf17SMJwki0ZkUK1)
 
 ### Подробная инструкция (апрель 2026)
 
@@ -225,7 +225,7 @@
 
 <div align="center">
 
-[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/xray-vless-reality-obhod)
+[![Скачать XRay VLESS Reality Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/ixf17SMJwki0ZkUK1)
 
 **Версия 4.6.1** — Бесплатная активация XRay VLESS Reality. Апрель 2026. Ноль рублей. Без платежей.
 
